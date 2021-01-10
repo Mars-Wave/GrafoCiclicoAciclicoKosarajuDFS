@@ -1,0 +1,1 @@
+Estos son los resultados incluidos en la memoria.
